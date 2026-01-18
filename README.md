@@ -1,2 +1,2 @@
 # cassie
-wala lalng basta mataas pangara ko
+wala lang basta mataas pangarap ko
